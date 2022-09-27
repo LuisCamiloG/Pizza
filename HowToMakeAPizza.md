@@ -8,3 +8,8 @@
 8. untando por una capa de tomate
 9. y unos cuantos champiñones
 10. se agrega el queso por partes  
+11. Para que cubra toda la capa al derretirse 
+12. Le agregamos jamón 
+13. Untamos salsa de piña 
+14. Le colocamos un puñado de pollo desmechado
+15. Le echamos peperroni
