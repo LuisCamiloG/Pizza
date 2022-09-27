@@ -14,6 +14,7 @@
 14. Le colocamos un puñado de pollo desmechado
 15. Le echamos peperroni
 16. Procedemos a colocar la pizza al horno
+17. le huntamos un poco de harina para que no se pegue al hornear
 17. espereamos por 15 min que se cocine
 18. Luego la sacamos y procedemos a separla
 19. Luego de estar en partes iguales 
