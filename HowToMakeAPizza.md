@@ -13,3 +13,8 @@
 13. Untamos salsa de piña 
 14. Le colocamos un puñado de pollo desmechado
 15. Le echamos peperroni
+16. Procedemos a colocar la pizza al horno
+17. espereamos por 15 min que se cocine
+18. Luego la sacamos y procedemos a separla
+19. Luego de estar en partes iguales 
+20. Se puede ya comer la Pizza
